@@ -2,7 +2,7 @@
 
 🎨👨‍💻 Hola, soy [Valentina Acosta]!
 
-Diseñadora gráfica y estudiante de programación apasionada por combinar estética y funcionalidad para crear experiencias digitales únicas. Con mas de 3 años de experiencia en diseño gráfico.
+Estudiante de programación y diseño gráfico apasionada por combinar estética y funcionalidad para crear experiencias digitales únicas. Con mas de 3 años de experiencia en diseño gráfico.
 
 🛠️ Habilidades:
 
