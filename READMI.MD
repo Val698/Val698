@@ -1,4 +1,3 @@
-![banner](banner.jpg)
 
 🎨👨‍💻 Hola, soy [Valentina Acosta]!
 
